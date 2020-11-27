@@ -11,3 +11,5 @@ The in the reviewing Spending Ranges per student, in every range, the schools th
 
 Smaller Student Populations also had better average reading, math, and overall passing scores.
 
+All in all, if you had a choice, I suggest you find a small charter school inorder to have the greatest chance for good math and reading scores.
+
